@@ -1,1 +1,0 @@
-# Brukeveiledning-til-batteri-skift-av-b-rbar-PC-intern-
